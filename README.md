@@ -19,22 +19,20 @@ I'm a system ! shocking i know , seems to be one everywhere you look on pt /lh
 - glisten skins iwc , this is a complicated one so feel free to ask once we're friends </3
 - lowkey in a recession rn so do with that what you will
 - usually offtab or drawing offscreen , to W2I ALWAYS
+- typing may take a while , so dont feel like im ignoring you please !
+
+
+### check out our patreon and my strawpage if you want !
 
 ## interests !
 > fandoms int with slight caution
-ranked from 'this is my life' to 'seems pretty cool ig'
 
 - D4NDY'5 W0RLD ! !!
 - Garfield , specifically garfield & friends + the original comics
-- Friday Night Funkin'
-  + G4RC3LL0 ! ??! ! >>>>
-  + Hex WeekEnd <3
-  + A.G.O.T.I. my a..GOAT-i .. haha im so funny . anyway
-  + vs FNaF [ the one with The Happiest Day , TH3R3'5 50 M4NY ]
-  + Nonsense !
-  + that one freak [Hit Singles]
-  + more i prolly forgot
+- Friday Night Funkin' & mods
 - Sonic The Hedgehog , game franchise
 - Sonic The Hedgehog , movie franchise
 - Kwite is okay , community int with extreme care though . jesus christ you guys are weird
+- Dayshift at Freddy's / Dialtown !
+- forsaken somewhat , im trash atm but slowly getting better
 - more ! this is wip atm
