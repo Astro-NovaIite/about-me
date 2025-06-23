@@ -1,4 +1,4 @@
-# About ME , GLISTEN !!
+# About ME
 > for ponytown use
 
 First off, H3LL0 ! !! Feel free to interact WH3N3V3R , unless dni or otherwise is in my name! 
